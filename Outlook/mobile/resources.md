@@ -1,5 +1,5 @@
 ---
-title: "Plan, deliver, and adopt Outlook for iOS and Android in your organization"
+title: "outlook,support,outlook support number 1-833-899-5888 Outlook customer service number Outlook for iOS and Android in your organization"
 ms.author: danbrown
 author: DHB-MSFT
 manager: laurawi
@@ -9,7 +9,7 @@ ms.topic: get-started-article
 localization_priority: Normal
 ms.collection: Ent_Office_Outlook
 ms.custom: Outlook_mobile
-description: "Provides resources for IT Pros to plan, deliver, and adopt Outlook for iOS and Android in your organization"
+description: "Outlook customer service number Outlook for iOS and Android in your organization Outlook customer service number Outlook for iOS and Android in your organization Outlook customer service number Outlook for iOS and Android in your organization Outlook customer service number Outlook for iOS and Android in your organization Outlook customer service number Outlook for iOS and Android in your organization Outlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organizationOutlook customer service number Outlook for iOS and Android in your organization"
 ---
 
 # Plan, deliver, and adopt Outlook for iOS and Android in your organization
